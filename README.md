@@ -1,1 +1,1 @@
-# KTLT Nội dung sô
+# KTLT Nội dung số
